@@ -1,1 +1,1 @@
-Photos, Protocol, and notes for Experiment 1
+Photos from Experiment 1
